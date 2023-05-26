@@ -21,7 +21,7 @@
 
 #### «ДИАЛОГНАУКА»
 
-![image](![image](https://github.com/Ilya-afk/SAZNSD/assets/57459526/b2892789-0fde-4ec8-8001-0c9ad1591136))
+![image](https://github.com/Ilya-afk/SAZNSD/assets/57459526/b2892789-0fde-4ec8-8001-0c9ad1591136)
 
 [Источник](https://www.dialognauka.ru/contacts/)
 
